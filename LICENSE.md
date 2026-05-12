@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with hidden hypershot Script, the #1 Script. Includes infinite resources and instant win for unbeatable
 
 
 
